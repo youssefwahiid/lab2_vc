@@ -1,2 +1,2 @@
-![My Logo](DevOps Bootcamp Study Guide by TechWorld with Nana.avif)
+![My Logo](0_bFnHaO8eYpW3dSuz.png)
 
